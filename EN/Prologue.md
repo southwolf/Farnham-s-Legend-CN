@@ -34,8 +34,7 @@ The Terraformers overwrote their primary directive and purged their memory cores
 
 Now motivated only to survive and expand their creators were now alien and aliens were a threat and an obstacle. Threats must be destroyed and obstacles removed. So began the great and terrible Terraformer War, which caught Humanity unprepared and almost defenceless. Colony after colony were destroyed until the Earth itself lay prostrate and in ruins, its rag tag defenses no match for the destructive power of the former servants.     
 
-The complete destruction of the species was averted only by the inspired actions of a former pirate and smuggler, Nathan R. Gunn. Rallying the small and ill-equipped remnants of the Earth fleet around his own flagship, the Dragonfire, he lured the Terraformers through the jumpgate out of the Sol system in pursuit of his retreating vessels. The remaining survivors destroyed the gate to prevent the Terraformers returning and in doing so slammed the door again on the stars. 
-人类幸免于此次灭种之灾完全要归功于一名前海盗兼走私贩 —— Nathan R.     
+The complete destruction of the species was averted only by the inspired actions of a former pirate and smuggler, Nathan R. Gunn. Rallying the small and ill-equipped remnants of the Earth fleet around his own flagship, the Dragonfire, he lured the Terraformers through the jumpgate out of the Sol system in pursuit of his retreating vessels. The remaining survivors destroyed the gate to prevent the Terraformers returning and in doing so slammed the door again on the stars.    
 
 The fate of those 400 human ships and the 150 strong Terraformer armada remained a mystery.     
 
