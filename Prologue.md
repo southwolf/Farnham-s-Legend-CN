@@ -1,5 +1,5 @@
-＃Prologue
-＃序言
+#Prologue
+#序言
 
 The first century of space exploration had closed with nothing more inspiring than a rock cataloging robot clambering over the surface of Mars and an obsolete space station plunging to a fiery death in the Pacific Ocean. Even the stunning vistas of the Hubble Telescope and its successors inspired nothing more than glossy, coffee table books and exotic screen savers. 
 在空间探索的首个世纪，没有比在火星表面爬过的岩石采样机器人以及在烈焰中坠入太平洋的废弃空间站更令人鼓舞的事件了。甚至透过哈勃太空望远镜及其继任者（应该指开普勒太空望远镜，译者注）展示的迷人景象，也最多不过用于光鲜的精装画册和引人入胜的屏幕保护程序。

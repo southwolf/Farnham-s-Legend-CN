@@ -1,3 +1,3 @@
-＃Farnham's Legend
-＃法纳姆传奇
+#Farnham's Legend
+#法纳姆传奇
 ===================
