@@ -42,8 +42,8 @@ It took five long dark centuries for a traumatised humanity to recover and thriv
 
 However, the names of the following people will remain vivid for all time:     
 
-* Neil Armstrong, the one who opened the door to space;     
+* **Neil Armstrong**, the one who opened the door to space;     
 
-* Cpt. Farnham, who presented the stars to mankind;     
+* **Cpt. Farnham**, who presented the stars to mankind;     
 
-* Nathan R. Gunn, who took them away again.    
+* **Nathan R. Gunn**, who took them away again.    
