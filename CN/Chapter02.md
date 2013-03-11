@@ -1,9 +1,9 @@
 # 第二章  
 
-And on the countless other planets that may circle other suns, is there life also? Is extraterrestrial life, if it exists, based on the same organic molecules as life on Earth? Do the beings of other worlds look much like life on Earth? Or are they stunningly different - other adaptations to other environments? What else is possible? 
+> And on the countless other planets that may circle other suns, is there life also? Is extraterrestrial life, if it exists, based on the same organic molecules as life on Earth? Do the beings of other worlds look much like life on Earth? Or are they stunningly different - other adaptations to other environments? What else is possible? 
 
-Carl Sagan, 
-“Cosmos” 
+> Carl Sagan, 
+> “Cosmos” 
 
 
 
