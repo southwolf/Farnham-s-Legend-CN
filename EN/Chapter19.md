@@ -1,4 +1,4 @@
-Chapter 19
+#Chapter 19
 One day the sun will rise. warm and bright. It will not be just any sun, it will be the lovely yellow star we all desire deep in our heart. We will be looking into the blue sky of our ancestors and we will feel with every fibre we belong here, that we have found again our place in the universe. Then and only then can our people be at one and leave the adolescence of our kind behind. 
 
 Guardian (21,7): Fran Foster 

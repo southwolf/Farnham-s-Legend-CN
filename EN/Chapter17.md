@@ -1,4 +1,4 @@
-Chapter 17
+#Chapter 17
 "[...] and during the 17th of December night watch at 23:16 we observed a colossal unknown alien space craft, which did not belong to the Terraformer Fleet materialise from empty space a long distance from the jumpgate and move away at relativistic speeds. It crossed the ecliptic plane of the sun Alpha Centauri through the orbit of its second planet, Taurus, and disappeared after thirty six minutes from our sector screens. Since then the remaining two jumpgates of the sector, aC1 and aC2, lost their connection with Beta Lyrae bL1 and Epsilon Eridani eE3. Instead, they lead now into completely unknown sectors of the Galaxy. From now on we are on our own, only us and the amok machines. 
 God help us all. 
 

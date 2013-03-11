@@ -1,4 +1,4 @@
-Chapter 6
+#Chapter 6
 The optimist believes that this is the best of all possible worlds. 
 The pessimist fears that is true. 
 Robert Oppenheimer 

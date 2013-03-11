@@ -1,4 +1,4 @@
-Chapter 16
+#Chapter 16
 It seems certain that jump gates were not distributed randomly across the galaxy. There are obviously different routes, which link uninhabited and inhabited star systems; however these networks are not interconnected. 
 
 According to this the Winterblossom is on a route, along which only uninhabited systems are reachable. That seems to me the only logical reason for the complete absence of alien life forms. 

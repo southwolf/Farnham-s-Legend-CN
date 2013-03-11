@@ -1,4 +1,4 @@
-Chapter 23
+#Chapter 23
 BONESCOUT
 Destruction abets evolution, 
 fear is the mainspring of progress. 
