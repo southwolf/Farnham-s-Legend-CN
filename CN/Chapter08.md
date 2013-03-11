@@ -1,4 +1,5 @@
-Chapter 8
+# 第八章  
+
 Therefore the Xenon are better than the Boron: they fight grim and hard. And they are not so unduly friendly, when one opens fire on them! 
 Thi t'Ggt, 
 First Warrior of the Honh Family 

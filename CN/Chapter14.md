@@ -1,4 +1,5 @@
-CHAPTER 14 
+# 第十四章   
+
 GETSU FUNE
 It is better to make a profit and lose it again 
 than never to make a profit at all. 

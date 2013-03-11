@@ -1,4 +1,5 @@
-Chapter 25
+# 第二十五章  
+
 If I were to name one thing that truly cloys me, my lord, it would be the prospect of giving birth to your son, just to be rewarded with death. You, my lord, are leading our proud people back into a time of barbarianism. Kill me; take my life and that of my unborn son, for he shouldn't have to grow up in a world such as that. 
 
 Ghinn t'Whht, 
